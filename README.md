@@ -1,0 +1,1 @@
+# IA-como-copiloto---Aula-3-Preparando-a-IA-da-Loja-Virtual
